@@ -1,1 +1,1 @@
-# Lucian.Blog
+# Lucian.Franghiu.com
